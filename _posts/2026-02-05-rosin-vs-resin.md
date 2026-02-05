@@ -2,7 +2,7 @@
 layout: post
 title: "Rosin vs Resin: What’s the Difference, and Which One’s Better?"
 ---
-Rosin and resin get used interchangeably, but these are not the same thing. This common mix-up makes shopping for concentrates more confusing than necessary. The distinction begins with the production method and impacts taste, texture, and price. Once the difference between the two becomes clear, especially regarding "live" labels, picking the right option for a specific budget or device gets much easier.
+**Body**: Rosin and resin get used interchangeably, but these are not the same thing. This common mix-up makes shopping for concentrates more confusing than necessary. The distinction begins with the production method and impacts taste, texture, and price. Once the difference between the two becomes clear, especially regarding "live" labels, picking the right option for a specific budget or device gets much easier.
 What Is Rosin?
 Rosin is a cannabis concentrate known for a simple approach. It uses no chemicals or solvents, relying only on pressure, heat, and the natural oils of the plant.
 How Is Rosin Made?
