@@ -1,6 +1,5 @@
 ---
-layout: post
-title: Smart Ways to Get Affordable Appliance Repair Without Sacrificing Quality
+Smart Ways to Get Affordable Appliance Repair Without Sacrificing Quality
 ---
 Appliances break down for many reasons. Age, daily wear, or just bad luck can cause a machine to stop working. With the high cost of home repairs, a small glitch can turn into a big bill if ignored. Finding [affordable appliance repair](https://wilshirerefrigeration.com/) that still offers high quality is a priority for most homeowners. Wilshire Refrigeration has a solid reputation for providing expert service. This help extends the life of household machines without costing a fortune.
 
