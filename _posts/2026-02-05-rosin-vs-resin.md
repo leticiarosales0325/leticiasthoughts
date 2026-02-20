@@ -1,5 +1,5 @@
 ---
-Rosin vs Resin: What’s the Difference, and Which One’s Better?
+Rosin vs Resin What’s the Difference, and Which One’s Better?
 ---
 [Rosin and resin](https://packsclub.com/rosin-vs-resin-guide/) get used interchangeably, but these are not the same thing. This common mix-up makes shopping for concentrates more confusing than necessary. The distinction begins with the production method and impacts taste, texture, and price. Once the difference between the two becomes clear, especially regarding "live" labels, picking the right option for a specific budget or device gets much easier.
 ## What Is Rosin?
